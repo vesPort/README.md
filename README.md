@@ -9,6 +9,7 @@
 - 👨‍💻 All of my projects are available at [https://github.com/vesPort](https://github.com/vesPort)
 
 - 📫 How to reach me **chernikov2702@gmail.com**
+**https://join.skype.com/invite/NfNLb5qk1kAs**
 
 - ⚡ Fun fact **Want to become a real dev )**
 
